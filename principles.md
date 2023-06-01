@@ -3,7 +3,7 @@
 ## ![Integrity](/images/integrity.png) Integrity: Leading by Example
 Always strive to do the right thing, especially when it's difficult or challenging. Control your emotions and maintain a composed voice. Recognize that your actions can influence others. Embrace a positive attitude, smile often, and actively contribute to the journey of everyone around you.|
 
-## ![Integrity](/images/time.png) Our Most Valuable Asset
+## ![Integrity](/images/time.png) Time: The Most Valuable Asset
 Time is a precious and limited resource. Spend it wisely, and avoid unnecessary distractions. Dedicate quality time to your family, and strive to be a loving father and husband. Plan your day to make most of it and reinforce good habits.
 
 ## ![Integrity](/images/growth.png) Growth: Stress + Rest, Consistently 
